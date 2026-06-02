@@ -1,1 +1,0 @@
-# Workshop-net-zero-tech-barcelona
